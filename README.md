@@ -2,7 +2,7 @@
 - 👀 I’m interested in Futsal n Football
 - 🌱 I’m currently learning at averroes
 - 💞️ I’m looking to collaborate on everyone
-- 📫 How to reach me +62 131 822 688
+- 📫 How to reach me +62 85 6464 0 5855
 - 😄 Pronouns: Demon King
 - ⚡ Fun fact: I don't like vegetables
 
